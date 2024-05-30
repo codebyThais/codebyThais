@@ -7,7 +7,3 @@
 💞️ I'm looking to collaborate on exciting projects and learn from fellow developers.
 
 📫 You can reach me via email (almeidathaiswork@gmail.com) or connect with me on GitHub.
-
-😄 Pronouns: She/Her
-
-⚡ Fun fact: I love experimenting with new technologies and finding creative solutions to coding challenges!

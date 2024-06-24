@@ -1,4 +1,4 @@
-👋 Hi, I'm @codebyThais!
+👋 Hi, I'm Thais Almeida - @codebyThais!
 
 👀 I'm interested in delving into the world of programming!
 
